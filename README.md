@@ -2,9 +2,9 @@
 
 
 
-\# 🖤 CHARRED CROW  
+# CHARRED CROW  
 
-\### \*Official Brand Identity Repository\*
+### \*Official Brand Identity Repository\*
 
 
 
